@@ -1,1 +1,1 @@
-# Welcome smart people, to the stupidest placeon earth!
+# Welcome smart people, to the stupidest place on earth!
